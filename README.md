@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Takua-s
+- 👀 I’m interested in Nothing
+- 🌱 I’m currently learning NOTHING
+- 📫 How to reach me takuanntv@gmail.com or takua#8547
